@@ -18,6 +18,6 @@ MINR . THEY/HE/IT
 
  I love drawing , crafting, and cooking. 
 ..... 
-
-WIP
+JOIN MY DISCORD SERVER 
+(link)[https://discord.gg/2RDMjxasts]
 
