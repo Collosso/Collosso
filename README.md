@@ -19,7 +19,8 @@ Referred as: Cosplay, or Ri. |  _no deadname._
 
  I'm usually always drained mentally, have paitence.  
  
-   ﾒ do [NOT] make sex / flirting jokes with me. 
+   ﾒ do __NOT__ make sex / flirting jokes with me. 
    
   i do not take easily to dark jokes containing __suicide, death, gore, etc.__
   
+I am a *YumeShipper*, if this irritates you, dni respectfully. 
