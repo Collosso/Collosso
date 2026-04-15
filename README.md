@@ -7,11 +7,12 @@ _______
  Minor - 14    . dni over 21+ unless commission.
   
 
-Referred as: Cosplay, or Ri. |  no deadname. 
+Referred as: Cosplay, or Ri. |  _no deadname._
 
 
-   Prnz: he/they (trans nonbinary) ( [ ; we / us ; only sometimes.] )
-    🇵🇱 / 🇺🇸 
+   Prnz: he/they (trans nonbinary)  __; we / us ; only sometimes.__
+   
+   -# 🇵🇱 / 🇺🇸 
 
 
 # ✘ BYI 
@@ -20,5 +21,5 @@ Referred as: Cosplay, or Ri. |  no deadname.
  
    ﾒ do [NOT] make sex / flirting jokes with me. 
    
-  i do not take easily to dark jokes containing [suicide, death, gore, etc.] 
+  i do not take easily to dark jokes containing __suicide, death, gore, etc.__
   
