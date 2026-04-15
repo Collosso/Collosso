@@ -24,3 +24,5 @@ Referred as: Cosplay, or Ri. |  _no deadname._
   i do not take easily to dark jokes containing __suicide, death, gore, etc.__
   
 I am a *YumeShipper*, if this irritates you, dni respectfully. 
+
+ -# disclaimer. I have an unstable personality, most likely undiagnosed borderline personality disorder.
