@@ -2,13 +2,17 @@
 
 _______
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂ 
+
+
  Minor - 14    . dni over 21+ unless commission.
-  -
+  
 
 Referred as: Cosplay, or Ri. |  no deadname. 
-    Prnz: he/they (trans nonbinary) ( [ ; we / us ; only sometimes.] )
+
+
+   Prnz: he/they (trans nonbinary) ( [ ; we / us ; only sometimes.] )
     🇵🇱 / 🇺🇸 
--
+
 
 # ✘ BYI 
 
