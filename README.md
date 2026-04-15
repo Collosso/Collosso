@@ -25,4 +25,24 @@ Referred as: Cosplay, or Ri. |  _no deadname._
   
 I am a *YumeShipper*, if this irritates you, dni respectfully. 
 
- <sub><sup> disclaimer. I have an unstable personality, most likely undiagnosed borderline personality disorder. </sup></sub>
+ <sub><sup> disclaimer. I have an unstable personality, most likely undiagnosed borderline personality disorder. </sup></sub> 
+
+ # Fandoms 
+
+ YBC (Yarichin Bitch club) 
+
+ Death Note 
+
+ Jojo's Bizarre adventure
+
+ The summer Hikaru died 
+
+ Chainsaw man 
+
+ Jujutsu Kaisen 
+
+ Mouthwashing
+
+ Hamilton, heathers, and other musicals.  
+
+ + more, these are just my main intrests
