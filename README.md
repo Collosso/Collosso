@@ -12,7 +12,7 @@ Referred as: Cosplay, or Ri. |  _no deadname._
 
    Prnz: he/they (trans nonbinary)  __; we / us ; only sometimes.__
    
-   -# 🇵🇱 / 🇺🇸 
+    🇵🇱 / 🇺🇸 
 
 
 # ✘ BYI 
