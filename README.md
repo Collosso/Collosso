@@ -25,4 +25,4 @@ Referred as: Cosplay, or Ri. |  _no deadname._
   
 I am a *YumeShipper*, if this irritates you, dni respectfully. 
 
- -# disclaimer. I have an unstable personality, most likely undiagnosed borderline personality disorder.
+ <sub><sup> disclaimer. I have an unstable personality, most likely undiagnosed borderline personality disorder. </sup></sub>
