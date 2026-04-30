@@ -25,11 +25,11 @@ Referred as: Cosplay, or Ri. |  _no deadname._
   
 I am a *YumeShipper*, if this irritates you, dni respectfully. 
 
- <sub><sup> disclaimer. I have an unstable personality, most likely undiagnosed borderline personality disorder. </sup></sub> 
+ <sub><sup> disclaimer. I have an unstable personality, most likely an undiagnosed disorder. </sup></sub> 
 
  # Fandoms 
 
- YBC (Yarichin Bitch club) 
+ YBC 
 
  Death Note 
 
@@ -50,4 +50,8 @@ I am a *YumeShipper*, if this irritates you, dni respectfully.
  Block tales 
  (Griefer kin!!)
 
- + more, these are just my main intrests
+ + more, these are just my main intrests  
+
+ # SIDE N0tE ~~ 
+
+   I'm such a frickin weird0 dude, but in a gud way obvi!! im the best XDDDDDD 
