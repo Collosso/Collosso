@@ -4,7 +4,7 @@ _______
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂ 
 
 
- Minor - 14    . dni over 21+ unless commission.
+ Minor - 15    . dni over 21+ unless commission.
   
 
 Referred as: Cosplay, or Ri. |  _no deadname._
@@ -43,6 +43,11 @@ I am a *YumeShipper*, if this irritates you, dni respectfully.
 
  Mouthwashing
 
- Hamilton, heathers, and other musicals.  
+ Hamilton, heathers, and other musicals.   
+
+ Honkai star rail 
+
+ Block tales 
+ (Griefer kin!!)
 
  + more, these are just my main intrests
