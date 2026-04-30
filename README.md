@@ -1,5 +1,6 @@
 <img src="https://i.pinimg.com/736x/7c/f6/97/7cf69737c8a2adea144e02cf13daf561.jpg"/>
 
+<sub><sup> credits to the artwork! n0t mine! </sup></sub>  
 _______
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂ 
 
