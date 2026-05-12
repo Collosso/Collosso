@@ -8,7 +8,7 @@ _______
  Minor - 15    . dni over 21+ unless commission.
   
 
-Referred as: Brad, or Ri. |  _no deadname._
+Referred as: Brad, or Junko. |  _no deadname._
 
 
    Prnz: he/they (trans nonbinary)  __; we / us ; only sometimes.__
