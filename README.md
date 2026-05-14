@@ -43,5 +43,12 @@ HELLO! .✦ ݁˖ Call me Soda, Ruipyyu, or just rui!
 
 𓏵 Pedophilia supporting, homophobic,  transphobic,  MY MOM,  xenophobes, uhm, basic dni list ok? 
 
-𓏵 if you have fetishs/kinks please know i dont judge just don't act on those towzrds me, thank! ≽(•⩊ •マ≼ 
+𓏵 if you have fetishs/kinks please know i dont judge just don't act on those towzrds me, thank! ≽(•⩊ •マ≼  
+
+
+
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 
+
+
+[Ao3 Soda/tanaka](https://archiveofourown.org/works/83940166?view_full_work=true) 
 
