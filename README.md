@@ -6,10 +6,20 @@
 
 
 HELLO! .✦ ݁˖ Call me Soda, Ruipyyu, or just rui!
+
+
 ────୨ৎ──── 
+
+
+
 (˶>⩊<˶) Minor-teen.. 15. Dni 12 and under
+
+
+
 ⭑.ᐟ       ⤷ trans man! he/him/they/them 
-                        ⤷ she/her is ok. this does not deduct me of my identity. 
+
+
+  ⤷ she/her is ok. this does not deduct me of my identity. 
 
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 
