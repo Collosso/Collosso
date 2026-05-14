@@ -65,4 +65,12 @@ I really just want friends but im too awkward to actually make any ( ദ്ദ�
  please tell me if i make you uncomfy..ok ? ok. 
 
 
- ૮₍ ˃ ⤙ ˂ ₎ა i am very sensitive, and PLEASE use Tone tags around me. I am usually drained unless with friends ٩(ˊᗜˋ*)و ♡ shoutout to them.ـ
+ ૮₍ ˃ ⤙ ˂ ₎ა i am very sensitive, and PLEASE use Tone tags around me. I am usually drained unless with friends ٩(ˊᗜˋ*)و ♡ shoutout to them.
+ 
+ 
+ ⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓⌓
+
+ <img width="498" height="371" alt="kazuichi-souda" src="https://github.com/user-attachments/assets/21427184-411f-4485-9b35-da222ac94b03" />
+
+ 
+ ـ
