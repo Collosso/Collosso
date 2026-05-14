@@ -56,5 +56,14 @@ HELLO! .✦ ݁˖ Call me Soda, Ruipyyu, or just rui!
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 
 
-as said in my bio...f/o and kins, uh for kin status feel free to int if you also kin! any of these, just don't bully me ok..
+Same kins/F/o can interact! Idm (˶˃ ᵕ ˂˶)  
+
+I really just want friends but im too awkward to actually make any ( ദ്ദി ˙ᗜ˙ )... i also am very 'freaky' . 
+ ˙ᵕ˙
+
+
+ please tell me if i make you uncomfy..ok ? ok. 
+
+
+ ૮₍ ˃ ⤙ ˂ ₎ა i am very sensitive, and PLEASE use Tone tags around me. I am usually drained unless with friends ٩(ˊᗜˋ*)و ♡ shoutout to them...
 
