@@ -65,5 +65,4 @@ I really just want friends but im too awkward to actually make any ( ദ്ദ�
  please tell me if i make you uncomfy..ok ? ok. 
 
 
- ૮₍ ˃ ⤙ ˂ ₎ა i am very sensitive, and PLEASE use Tone tags around me. I am usually drained unless with friends ٩(ˊᗜˋ*)و ♡ shoutout to them...
-
+ ૮₍ ˃ ⤙ ˂ ₎ა i am very sensitive, and PLEASE use Tone tags around me. I am usually drained unless with friends ٩(ˊᗜˋ*)و ♡ shoutout to them.ـ
