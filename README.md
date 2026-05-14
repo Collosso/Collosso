@@ -50,5 +50,7 @@ HELLO! .✦ ݁˖ Call me Soda, Ruipyyu, or just rui!
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 
 
 
-[Ao3 Soda/tanaka](https://archiveofourown.org/works/83940166?view_full_work=true) 
+[Ao3 Soda/tanaka](https://archiveofourown.org/works/83940166?view_full_work=true)  
+
+[Awesome fan animation..trust..](https://www.youtube.com/watch?v=xvFZjo5PgG0)
 
