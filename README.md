@@ -1,4 +1,19 @@
-<img width="57" height="84" alt="kazuichi-souda-danganronpa" src="https://github.com/user-attachments/assets/053d6332-bf11-4755-b5f0-9a93328ba0e4" /> 
+ <img width="57" height="84" alt="kazuichi-souda-danganronpa" src="https://github.com/user-attachments/assets/053d6332-bf11-4755-b5f0-9a93328ba0e4" />   <img width="75" height="87" alt="ibuki-mioda" src="https://github.com/user-attachments/assets/ca1a4fc9-f908-4f4e-8372-4ce587577072" /> <img width="69" height="87" alt="chihiro-fujisaki-chihiro" src="https://github.com/user-attachments/assets/73dad865-4538-4056-ac64-a48257cd8c0c" /><img width="66" height="81" alt="exausted-byakuya" src="https://github.com/user-attachments/assets/d1a1f123-9fa0-4de9-b142-efb3060c5172" />
+
+
+   
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 <img width="498" height="263" alt="danganronpa-kazuichi-soda" src="https://github.com/user-attachments/assets/83dbed4a-1bcf-4423-8c21-3834eb7ea0a3" />
