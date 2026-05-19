@@ -20,7 +20,13 @@
 
 
 
-HELLO! .✦ ݁˖ Call me Soda, Ruipyyu, or just rui!
+HELLO! .✦ ݁˖ Call me Soda, Ruipyyu, or just rui! 
+
+
+
+I HAVE ONE TRIGGER PLEASE I BEG FOR YOU TO NOT EVEN MENTION IT 
+
+> Limbless Hajime.
 
 
 ────୨ৎ──── 
