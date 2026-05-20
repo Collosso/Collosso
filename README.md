@@ -1,3 +1,3 @@
-![](https://komarev.com/ghpvc/?username=Collosso&label=Monokumas)
+
  ـ
- ![](https://komarev.com/ghpvc/?username=Collosso&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=Collosso&color=C951B6)
