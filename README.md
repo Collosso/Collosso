@@ -1,2 +1,2 @@
-![](https://komarev.com/ghpvc/?username=Collosso%color=C951B6&label=Monokumas)
+![](https://komarev.com/ghpvc/?username=Collosso&label=Monokumas)
  ـ
