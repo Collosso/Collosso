@@ -33,7 +33,7 @@
 
   ‎ ‎ ‎ ‎ ‎     ‎ 
     ‎ ‎ ‎ ‎ ‎     ‎ 
- ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎     ‎   ‎ ‎ ‎ ‎ ‎     ‎   ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎15 / ᴛ-ᴍᴀɴ / ʜᴇ.ᴛʜᴇʏ / ᴄʜᴇᴄᴋ ʟɪɴᴋꜱ
+ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎     ‎   ‎ ‎  ‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mpf2n5n6z6qey7bfx75wxdlyhe&cover_image=false&theme=default&show_offline=false&background_color=5e2231&interchange=false&profanity=false&hide_remaster=true&bar_color=c82875&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
   
   ‎ ‎ ‎ ‎ ‎     ‎ 
     ‎ ‎ ‎ ‎ ‎     ‎ 
