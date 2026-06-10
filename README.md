@@ -1,4 +1,4 @@
-
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <img width="148" height="50" alt="c8571964" src="https://github.com/user-attachments/assets/7baa400b-604d-400b-9b0c-757366e6b2a5" />
 
 
 
@@ -10,7 +10,7 @@
  
    
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![](https://komarev.com/ghpvc/?username=Collosso&color=E0641D&label="Simps"+caught)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ![](https://komarev.com/ghpvc/?username=Collosso&color=E0641D&label="Simps"+caught)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 
@@ -23,7 +23,7 @@
  
  
  
-  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎[P](https://en.pronouns.page/@Doctor0fPlague)rnz.pg ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ [<3 :3 S](https://k1-b0i.straw.page)traw      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎                  [C](https://sodar.carrd.co/)arrd
+  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎   ‎‎  ‎[P](https://en.pronouns.page/@Doctor0fPlague)rnz.pg ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎ [<3 :3 S](https://k1-b0i.straw.page)traw      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎        [C](https://sodar.carrd.co/)arrd
 
 
 
@@ -31,9 +31,12 @@
 
 
 
-  ‎ ‎ ‎ ‎ ‎     ‎ 
-    ‎ ‎ ‎ ‎ ‎     ‎ 
- ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎     ‎   ‎ ‎  ‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mpf2n5n6z6qey7bfx75wxdlyhe&cover_image=false&theme=default&show_offline=false&background_color=5e2231&interchange=false&profanity=false&hide_remaster=true&bar_color=c82875&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+  ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+    ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mpf2n5n6z6qey7bfx75wxdlyhe&cover_image=false&theme=default&show_offline=false&background_color=5e2231&interchange=false&profanity=false&hide_remaster=true&bar_color=c82875&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
   
   ‎ ‎ ‎ ‎ ‎     ‎ 
     ‎ ‎ ‎ ‎ ‎     ‎ 
