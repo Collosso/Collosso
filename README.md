@@ -63,6 +63,17 @@
 
 
 
+<img width="299" height="30" alt="09d95c43_original" src="https://github.com/user-attachments/assets/e7b007e2-ceaa-4f0a-a4f9-b3f60fef32fa" /><img width="299" height="30" alt="09d95c43_original" src="https://github.com/user-attachments/assets/e7b007e2-ceaa-4f0a-a4f9-b3f60fef32fa" />
+
+🌙 = ''w2i/offtab/slow resp ' ' 
+
+⛔ = Dniuf (anyone in friends list) 
+
+(Default online) = int int int!! 
+
+❓ = Something else? well then just assume its 🌙!
+
+
   
   ‎ ‎ ‎ ‎ ‎     ‎ 
     ‎ ‎ ‎ ‎ ‎     ‎ 
