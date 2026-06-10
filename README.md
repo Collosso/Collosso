@@ -52,9 +52,9 @@
 
 <img width="20" height="20" alt="4daed074_original" src="https://github.com/user-attachments/assets/d8078615-b727-4799-a6ce-98a351537310" />  Haii ^_^''' i'm 15 yrz old and male, this github is serving a main purpose of Ponytown playing soo..don't look for codes/apks here oki?ok! 
 
+<img width="20" height="20" alt="29151167" src="https://github.com/user-attachments/assets/59f75203-63c9-4753-9291-e01aa4145344" /> DNI if you are sensitive to graphic humour, that's js how i am.
 
-<img width="296" height="256" alt="image" src="https://github.com/user-attachments/assets/659e372d-af93-4700-ab75-1ed618748fd7" />
-
+<img width="20" height="20" alt="29151167" src="https://github.com/user-attachments/assets/59f75203-63c9-4753-9291-e01aa4145344" />  ᴡ2ɪ ᴍᴏꜱᴛʟʏ .  ᴏꜰꜰᴛᴀʙ ᴜꜱᴜᴀʟʟʏ ᴡ/ᴏ ꜰʀɪᴇɴꜱ
 
 
 
