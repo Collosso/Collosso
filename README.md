@@ -24,3 +24,10 @@
    <li> Sign ata broooo !</li>
   </ul>
 </details>
+
+<details>
+  <summary>NOTICE</summary>
+  <ul>
+    <li>I do Agere but it is *very* rare, make sure to int with very extra care if i do !</li>
+  </ul>
+</details>
