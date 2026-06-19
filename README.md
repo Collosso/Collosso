@@ -7,3 +7,20 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎<img width="400" height="54" alt="277a09a6" src="https://github.com/user-attachments/assets/2a10ff48-3991-4342-a465-abb933d86898" />
 
+
+
+
+
+
+<details>
+  <summary>BYI</summary>
+  <ul>
+    <li>Do not cover unless friend!</li>
+    <li>Please int first !</li>
+    <li> online ≠ avaliable !</li>
+    <li> ^^^ Cd/Ct !</li>
+    <li> often NV w/o friends !</li>
+    <li> RPDNIUF !</li>
+   <li> Sign ata broooo !</li>
+  </ul>
+</details>
